@@ -14,4 +14,4 @@
 	int whenever .ᐟ huge c + h comf . ♥
 
 <p align= "center">
-dnc my zkinz plzz... .ᐟ.ᐟ thank yoouuuuu.. (✿^‿^)
+dnc my zkinz plzz... .ᐟ.ᐟ thank yoouuuuu.. ヾ(＠⌒ー⌒＠)ノ
