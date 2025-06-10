@@ -15,3 +15,10 @@
 
 <p align= "center">
 dnc my zkinz plzz... .ᐟ.ᐟ thank yoouuuuu.. ヾ(＠⌒ー⌒＠)ノ
+
+
+
+
+
+<p align="right">
+  <img width="700" height=600 src= "https://github.com/user-attachments/assets/56150026-75f9-4c57-8ef5-2cdf90bfbeb3"
