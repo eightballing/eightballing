@@ -17,8 +17,9 @@
 dnc my zkinz plzz... .ᐟ.ᐟ thank yoouuuuu.. ヾ(＠⌒ー⌒＠)ノ
 
 
+</p>
 
 
 
-<p align="right">
-  <img width="700" height=600 src= "https://github.com/user-attachments/assets/56150026-75f9-4c57-8ef5-2cdf90bfbeb3"
+![Untitled84_20250610165750](https://github.com/user-attachments/assets/068559ab-86b3-4c5f-88f6-e0ac6254d3e4)
+
