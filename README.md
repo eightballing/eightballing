@@ -21,5 +21,5 @@ dnc my zkinz plzz... .ᐟ.ᐟ thank yoouuuuu.. ヾ(＠⌒ー⌒＠)ノ
 
 
 
-![Untitled84_20250610165750](https://github.com/user-attachments/assets/068559ab-86b3-4c5f-88f6-e0ac6254d3e4)
+
 
