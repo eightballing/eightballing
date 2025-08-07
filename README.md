@@ -7,7 +7,13 @@
   <img width="400" height=400 src= "https://github.com/user-attachments/assets/e236ef95-2fc3-42b0-8876-dd9b56e26c63"
 
 
+</p>
+
+
+
 <p align="center">
+	<img width="400" height="27" alt="IMG_6205" src="https://github.com/user-attachments/assets/b9b5596c-de40-442c-8e71-2a1c226d983f"
+
 
 
 
@@ -25,8 +31,3 @@ dnc my skins plss... .ᐟ.ᐟ thank yoouuuuu.. ヾ(＠⌒ー⌒＠)ノ
 
 
 </p>
-
-
-
-
-
